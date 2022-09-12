@@ -1,0 +1,2 @@
+# ProgrammingMultimediaAndMultidimensionalApplications
+Lector: Suhorukova
